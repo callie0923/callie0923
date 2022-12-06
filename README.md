@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **cmvzjx@gmail.com**
 
-- ⚡ Fun fact **I work as an Air Traffic Controller Full Time**
+- ⚡ Fun fact **I Separate Airplanes for a living.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
